@@ -1,0 +1,1 @@
+this codes are just for practice and learn. if you wanna learn something from it, you should. but you should ask the owner how to start because you maynt understand all the codes on your own and the codes aint put sequentially, it was made for my personal use at a later time when needed
